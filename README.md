@@ -25,5 +25,5 @@
 ---
 
 ## 📫 Como me encontrar
-- [LinkedIn](link-do-seu-linkedin)
+- [LinkedIn](https://www.linkedin.com/in/janailson-f-silva-45878272?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - [E-mail](mailto:seu-email@example.com)
